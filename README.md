@@ -1,1 +1,1 @@
-# Ural-Alfa-Hack-Unbeatable-
+# Ural-Alfa-Hack-Unbeatable
